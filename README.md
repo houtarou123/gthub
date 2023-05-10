@@ -3,6 +3,4 @@
 J1KT0R
 pers eber notes lesgooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 
-dfsdfsdfsdfdsdf
-
-fsdfsdf
+This is Cobar Johnrey P. I added this para makita nga ako nag edit ani
