@@ -6,3 +6,5 @@ pers eber notes lesgoooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 This is Cobar Johnrey P. I added this para makita nga ako nag edit ani
 
 Git fetch ni ha - cobar
+
+last
